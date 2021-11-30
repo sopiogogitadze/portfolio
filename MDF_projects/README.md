@@ -1,5 +1,5 @@
 
-# Articles
+# Articles Associated With [Media Development Foundation](http://www.mythdetector.ge/en)
 
 * [Giorgadze’s Claims about Hepatitis C Treatment Program Allegedly Causing Death are Groundless](http://www.mythdetector.ge/en/myth/giorgadzes-claims-about-hepatitis-c-treatment-program-allegedly-causing-death-are-groundless?fbclid=IwAR2CtbEEH-M84K06SfcYoqkX766bf_DTNFqpdhW8X-7kirBFNnomUFChCnQ)
 

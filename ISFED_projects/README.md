@@ -1,5 +1,5 @@
 
-# Articles
+# Articles Associated With [International Society For Fair Elections and Democracy](https://www.isfed.ge/eng)
 
 * [The News-Front "Spaces" on Facebook](https://isfed.ge/eng/blogi/Space-News)
 
